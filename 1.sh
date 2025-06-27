@@ -1,0 +1,9 @@
+a
+s
+ds
+f'
+sfdloi
+aeoiproqie
+all
+akdu
+skur
